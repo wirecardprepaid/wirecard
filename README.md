@@ -1,2 +1,0 @@
-# wirecard-prepaidhelp.tk
-
